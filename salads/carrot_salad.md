@@ -3,9 +3,9 @@
 ## Ingredients
 - 2 Carrots
 - Handful of parsley
-- Olive oil
-- vinegar
-- Salt, Pepper
+- 1 Tbsp Olive oil
+- 1/2 Tbsp vinegar
+- Salt, Pepper according to preferences
 
 ## Instructions
 - Grind carrots
